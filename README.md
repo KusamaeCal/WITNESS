@@ -48,6 +48,9 @@ Time Athlete of the Year (2020)
 NBA all-time scoring leader (2023)
 
 
+
+
+
 LeBron has had one of the best if not THE best athletic careers starting from High School. In four years at St.Vincent St.Mary the young star scored less than 10 points under 3 times.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/QEzt_vH2Yag" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
